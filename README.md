@@ -1,4 +1,6 @@
-<div align="center"> ![](https://i.postimg.cc/cJQtxGpP/4-B591-F53-B744-4747-97-C9-2-E7325085-DAD.gif) ⏔⏔ [Rentry](https://rentry.co/ruminant)  + [Tumblr](https://ruuminant.tumblr.com/?source=share) (｡•́︿•̀｡)
+<div align="center">
+
+  ![buck](https://i.postimg.cc/cJQtxGpP/4-B591-F53-B744-4747-97-C9-2-E7325085-DAD.gif) ⏔⏔ [Rentry](https://rentry.co/ruminant)  + [Tumblr](https://ruuminant.tumblr.com/?source=share) (｡•́︿•̀｡)
 
 ︶︶ I block/hide freely — C+H okay, please W2I.
 

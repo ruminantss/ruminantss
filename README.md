@@ -8,4 +8,6 @@ I'm normally on safe below spawn, feel free to say hi :-) ![](https://i.postimg.
 
 ![](https://cdn.characterhub.com/r/1280w/users/5b1a131c-7c1a-4fe4-92e8-bfeb1f6e0077/70ea549e-cab1-4ab9-b649-0b394f79b676_l)
 
+Kins (NOT fictkins) ; Will Byers, Finney Blake, & Lottie Matthews ..
+
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=ob8vtokf0aka49db8wnw36yhu&cover_image=false&theme=novatorem&show_offline=false&background_color=30231a&interchange=false&profanity=false&bar_color=826644&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=ob8vtokf0aka49db8wnw36yhu&redirect=true)

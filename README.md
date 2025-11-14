@@ -11,3 +11,5 @@ I'm normally on safe below spawn, feel free to say hi :-) ![](https://i.postimg.
 Kins (NOT fictkins) ; Will Byers, Finney Blake, & Lottie Matthews ..
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=ob8vtokf0aka49db8wnw36yhu&cover_image=false&theme=novatorem&show_offline=false&background_color=30231a&interchange=false&profanity=false&bar_color=826644&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=ob8vtokf0aka49db8wnw36yhu&redirect=true)
+
+![](https://64.media.tumblr.com/84d2a179311cc8032d2eea3ca73da571/bde509c4e381c09b-7d/s100x200/386a8f0ff7b26b6ed014fb8693b813820f4ff866.gifv) ![](https://64.media.tumblr.com/36c61fbec074dbd69fc87c694cde7502/6b32924a0f18647a-6c/s100x200/a09c935101488497a2b09a3ad87dc69148f5c29d.gifv)

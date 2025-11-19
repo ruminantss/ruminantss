@@ -4,9 +4,9 @@
 
   ![buck](https://cdn.discordapp.com/emojis/1118900136140095580.webp?size=28&quality=lossless) ⏔⏔ [Rentry](https://rentry.co/ruminant)  + [Tumblr](https://ruuminant.tumblr.com/?source=share) U^ｪ^U
 
-જ⁀➴ I block/hide freely — C+H is fine, please W2I (I'm normally offtab). 𝜗𝜚 ...
+જ⁀➴ I block/hide freely — C+H is fine, please W2I ![](https://cdn.discordapp.com/emojis/1026877051640238163.webp?size=28&quality=lossless) (I'm normally offtab). 𝜗𝜚 ...
 
-I'm normally on safe below spawn, feel free to say hi! Idm people copying my ponies/taking inspo. ![](https://i.postimg.cc/Bb38L70t/4889-DC46-E54-C-44-B2-B86-F-E813-F86-F67-E7.gif)
+![](https://i.postimg.cc/c1cjKK7L/IMG-9954.gif) I'm normally on safe below spawn, feel free to say hi! Idm people copying my ponies/taking inspo. ![](https://i.postimg.cc/Bb38L70t/4889-DC46-E54-C-44-B2-B86-F-E813-F86-F67-E7.gif)
 
 Kins (NOT fictkins) ; Will Byers (st) & Finney Blake (tbp)
 
@@ -16,6 +16,6 @@ Kins (NOT fictkins) ; Will Byers (st) & Finney Blake (tbp)
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=ob8vtokf0aka49db8wnw36yhu&cover_image=false&theme=novatorem&show_offline=false&background_color=30231a&interchange=false&profanity=false&bar_color=826644&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=ob8vtokf0aka49db8wnw36yhu&redirect=true)
 
-![](https://64.media.tumblr.com/84d2a179311cc8032d2eea3ca73da571/bde509c4e381c09b-7d/s100x200/386a8f0ff7b26b6ed014fb8693b813820f4ff866.gifv) ![](https://64.media.tumblr.com/36c61fbec074dbd69fc87c694cde7502/6b32924a0f18647a-6c/s100x200/a09c935101488497a2b09a3ad87dc69148f5c29d.gifv) ![](https://64.media.tumblr.com/15c2e1905c8e45bb292474c0e4ed7fe4/91c633692b4581b0-18/s100x200/608173bb8ddaea76763c51497d9c7d0d67b5af27.pnj) ![](https://64.media.tumblr.com/e4fd278c99c7a91a96daf080bc2e08c4/aad85d15647af332-80/s100x200/c499d3ff6dcd1bcad16fbdb844f17cacca5858f1.gifv)
+![](https://64.media.tumblr.com/84d2a179311cc8032d2eea3ca73da571/bde509c4e381c09b-7d/s100x200/386a8f0ff7b26b6ed014fb8693b813820f4ff866.gifv) ![](https://64.media.tumblr.com/36c61fbec074dbd69fc87c694cde7502/6b32924a0f18647a-6c/s100x200/a09c935101488497a2b09a3ad87dc69148f5c29d.gifv) ![](https://64.media.tumblr.com/15c2e1905c8e45bb292474c0e4ed7fe4/91c633692b4581b0-18/s100x200/608173bb8ddaea76763c51497d9c7d0d67b5af27.pnj) ![](https://64.media.tumblr.com/e4fd278c99c7a91a96daf080bc2e08c4/aad85d15647af332-80/s100x200/c499d3ff6dcd1bcad16fbdb844f17cacca5858f1.gifv) ![](https://64.media.tumblr.com/6022c80eead7303716a3ba6c2dc74ba8/61aca7a140fc6f2b-e4/s100x200/04383552f369ceba09e12c8ad1161a10be1d0296.pnj)
 
 ![](https://64.media.tumblr.com/bdbeca46d75db635d06ead5d45550381/be1a0ac4e48e3c6d-a1/s2048x3072/cb316ab63e330bdd3ab7d41d6e83dafc6bc3317f.pnj)

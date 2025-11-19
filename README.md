@@ -6,9 +6,9 @@
 
 I'm normally on safe below spawn, feel free to say hi! Idm people copying my ponies/taking inspo. ![](https://i.postimg.cc/Bb38L70t/4889-DC46-E54-C-44-B2-B86-F-E813-F86-F67-E7.gif)
 
-![](https://cdn.characterhub.com/r/1280w/users/5b1a131c-7c1a-4fe4-92e8-bfeb1f6e0077/70ea549e-cab1-4ab9-b649-0b394f79b676_l) ![](https://64.media.tumblr.com/12606cf803c6e013e148501661493471/4d4ec433e1218e45-b7/s250x400/4228edb30dd311bdc1a1bf5300af34ba4bea13d6.gifv) ![](https://64.media.tumblr.com/d48f0bd193a1c70908e255c5d0c199af/5cec79bc37492035-5f/s250x400/e944a4c261bc6b0286eb1b878093b72a4c6ad6d2.gifv)
+![](https://cdn.characterhub.com/r/1280w/users/5b1a131c-7c1a-4fe4-92e8-bfeb1f6e0077/70ea549e-cab1-4ab9-b649-0b394f79b676_l) ![](https://64.media.tumblr.com/12606cf803c6e013e148501661493471/4d4ec433e1218e45-b7/s250x400/4228edb30dd311bdc1a1bf5300af34ba4bea13d6.gifv) ![](https://64.media.tumblr.com/d48f0bd193a1c70908e255c5d0c199af/5cec79bc37492035-5f/s250x400/e944a4c261bc6b0286eb1b878093b72a4c6ad6d2.gifv) ![](https://64.media.tumblr.com/2caa4a5923843e0c99f925447461ddd9/cc5a9c49df36da94-f7/s250x400/32fd44cbec63c8818e6e65dc9ef4fa2661f002d5.gifv)
 
-⟢ I really like psychology & typology, I also love horror media just in general. ︶︶
+![buck](https://i.postimg.cc/tgxpwQ69/IMG_1870.gif) I really like psychology & typology, I also love horror media just in general. ⟢
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=ob8vtokf0aka49db8wnw36yhu&cover_image=false&theme=novatorem&show_offline=false&background_color=30231a&interchange=false&profanity=false&bar_color=826644&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=ob8vtokf0aka49db8wnw36yhu&redirect=true)
 

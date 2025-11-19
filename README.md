@@ -1,6 +1,6 @@
 <div align="center">
 
-  ![buck](https://i.postimg.cc/cJQtxGpP/4-B591-F53-B744-4747-97-C9-2-E7325085-DAD.gif) ⏔⏔ [Rentry](https://rentry.co/ruminant)  + [Tumblr](https://ruuminant.tumblr.com/?source=share) (｡•́︿•̀｡)
+  ![buck](https://cdn.discordapp.com/emojis/1118900136140095580.webp?size=28&quality=lossless) ⏔⏔ [Rentry](https://rentry.co/ruminant)  + [Tumblr](https://ruuminant.tumblr.com/?source=share) U^ｪ^U
 
 જ⁀➴ I block/hide freely — C+H is fine, please W2I (I'm normally offtab). 𝜗𝜚 ...
 
@@ -8,7 +8,7 @@ I'm normally on safe below spawn, feel free to say hi! Idm people copying my pon
 
 ![](https://cdn.characterhub.com/r/1280w/users/5b1a131c-7c1a-4fe4-92e8-bfeb1f6e0077/70ea549e-cab1-4ab9-b649-0b394f79b676_l) ![](https://64.media.tumblr.com/12606cf803c6e013e148501661493471/4d4ec433e1218e45-b7/s250x400/4228edb30dd311bdc1a1bf5300af34ba4bea13d6.gifv) ![](https://64.media.tumblr.com/d48f0bd193a1c70908e255c5d0c199af/5cec79bc37492035-5f/s250x400/e944a4c261bc6b0286eb1b878093b72a4c6ad6d2.gifv)
 
-I really like psychology & typology, I also love horror media just in general.
+⟢ I really like psychology & typology, I also love horror media just in general. ︶︶
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=ob8vtokf0aka49db8wnw36yhu&cover_image=false&theme=novatorem&show_offline=false&background_color=30231a&interchange=false&profanity=false&bar_color=826644&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=ob8vtokf0aka49db8wnw36yhu&redirect=true)
 

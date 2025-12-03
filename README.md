@@ -2,7 +2,7 @@
 
 ![](https://64.media.tumblr.com/5c60a849caa59e75d4594daa422d6ddd/be1a0ac4e48e3c6d-c5/s2048x3072/af5c5c70d9af8ac1e260c180e1f1b8d8b4d4ef3d.pnj)
 
-  ![buck](https://cdn.discordapp.com/emojis/1118900136140095580.webp?size=28&quality=lossless) ⏔⏔ [My rentry](https://rentry.co/ruminant) U^ｪ^U
+  ![buck](https://cdn.discordapp.com/emojis/1118900136140095580.webp?size=28&quality=lossless) ⏔⏔ [My rentry](https://rentry.co/ruminant) + [Letterboxd](https://boxd.it/emkK5) U^ｪ^U
 
 જ⁀➴ I block/hide freely — C+H is fine, please W2I ![](https://i.postimg.cc/FRNd1nmz/4-C1-FE9-CA-80-DF-47-DE-B31-F-4-C982-A2-D7-A8-B.gif) (I'm normally offtab). 𝜗𝜚 ...
 

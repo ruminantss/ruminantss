@@ -2,7 +2,7 @@
 
 ![](https://64.media.tumblr.com/5c60a849caa59e75d4594daa422d6ddd/be1a0ac4e48e3c6d-c5/s2048x3072/af5c5c70d9af8ac1e260c180e1f1b8d8b4d4ef3d.pnj)
 
-  ![buck](https://64.media.tumblr.com/fdf5fc8da62218311b25fc60ac61a0ea/6128dc2ba9b3d469-25/s75x75_c1/8f4980be7fb96b2f89f95ff195555e9a21a6c4b5.gifv) ⏔⏔ ꒰ [My rentry](https://rentry.co/ruminant) + [Pronouns.cc](https://pronouns.cc/@Ruminant) ꒱
+  ![buck](https://64.media.tumblr.com/fdf5fc8da62218311b25fc60ac61a0ea/6128dc2ba9b3d469-25/s75x75_c1/8f4980be7fb96b2f89f95ff195555e9a21a6c4b5.gifv) ⏔⏔ ꒰ [My rentry](https://rentry.co/ruminant) + [Pronouns.cc](https://pronouns.cc/@Ruminant) ! [Tumblr](https://ruuminant.tumblr.com/?source=share) ꒱
 
 જ⁀➴ I block/hide freely — C+H is fine, please W2I ![](https://64.media.tumblr.com/551a3f2734f7e8e177c9c62522f1b359/6128dc2ba9b3d469-14/s75x75_c1/e8dcdb5a2bfd492cda7af2de1415d41eed0e41a5.gifv) (I'm normally offtab). 𝜗𝜚 ...
 

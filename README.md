@@ -17,4 +17,4 @@
 
 ![](https://64.media.tumblr.com/bdbeca46d75db635d06ead5d45550381/be1a0ac4e48e3c6d-a1/s2048x3072/cb316ab63e330bdd3ab7d41d6e83dafc6bc3317f.pnj)
 
-![](https://files.catbox.moe/lyiihr.jpg)
+![](https://files.catbox.moe/syy3ci.png)

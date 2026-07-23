@@ -6,7 +6,7 @@
 ![blinkie2](https://64.media.tumblr.com/c9cf63fd5f1a7c7f33e71438df359192/4d4ec433e1218e45-91/s250x400/c3c016793e5653dbfd6d5798b7e4be8585c4568a.gifv)
 ![blinkie3](https://64.media.tumblr.com/12606cf803c6e013e148501661493471/4d4ec433e1218e45-b7/s250x400/4228edb30dd311bdc1a1bf5300af34ba4bea13d6.gifv)
 
-I block/hide freely — please W2I ![](https://64.media.tumblr.com/551a3f2734f7e8e177c9c62522f1b359/6128dc2ba9b3d469-14/s75x75_c1/e8dcdb5a2bfd492cda7af2de1415d41eed0e41a5.gifv) (I'm normally offtab). ...
+I block/hide freely — please W2I ![](https://64.media.tumblr.com/551a3f2734f7e8e177c9c62522f1b359/6128dc2ba9b3d469-14/s75x75_c1/e8dcdb5a2bfd492cda7af2de1415d41eed0e41a5.gifv) I'm normally offtab, I like to afk while I study or do other things. ...
 
 [twitter](https://x.com/ruuminants) || [atabook](https://ruminant.atabook.org/) || [tumblr](https://ruuminant.tumblr.com/?source=share)
 

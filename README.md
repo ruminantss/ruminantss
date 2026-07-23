@@ -2,9 +2,13 @@
 
 ![divider](https://64.media.tumblr.com/3951143e0f6fe7fd4215bb9530dad6ad/a0cc08cef6ca29d1-b1/s1280x1920/cc995ccd8e53357edfb5c92274d5a5fe9ddc4fac.pnj)
 
-[twitter](https://x.com/ruuminants) || [atabook](https://ruminant.atabook.org/) || [tumblr](https://ruuminant.tumblr.com/?source=share)
+![blinkie1](https://64.media.tumblr.com/baff71fccdcb961d0ece5e8a111128bb/4f678ade2e785cae-77/s250x400/555c42d77c1a55c1e99e548db3febba271815f1f.gifv)
+![blinkie2](https://64.media.tumblr.com/c9cf63fd5f1a7c7f33e71438df359192/4d4ec433e1218e45-91/s250x400/c3c016793e5653dbfd6d5798b7e4be8585c4568a.gifv)
+![blinkie3](https://64.media.tumblr.com/12606cf803c6e013e148501661493471/4d4ec433e1218e45-b7/s250x400/4228edb30dd311bdc1a1bf5300af34ba4bea13d6.gifv)
 
 I block/hide freely — please W2I ![](https://64.media.tumblr.com/551a3f2734f7e8e177c9c62522f1b359/6128dc2ba9b3d469-14/s75x75_c1/e8dcdb5a2bfd492cda7af2de1415d41eed0e41a5.gifv) (I'm normally offtab). ...
+
+[twitter](https://x.com/ruuminants) || [atabook](https://ruminant.atabook.org/) || [tumblr](https://ruuminant.tumblr.com/?source=share)
 
 ![](https://64.media.tumblr.com/eaecf03685bd97e18dca596c27686a44/45b70a72e20d3d24-51/s75x75_c1/737d923039260e000d95f9b48f6a8e7775daf2f9.gifv) I'm usually on safe below spawn, feel free to say hi or just sit next to me! Idm people copying my ponies/taking inspo or colours, it's completely okay & you don't need to ask beforehand. ![](https://i.postimg.cc/Bb38L70t/4889-DC46-E54-C-44-B2-B86-F-E813-F86-F67-E7.gif)
 

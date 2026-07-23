@@ -1,5 +1,8 @@
 <div align="center">
 
+![divider](https://64.media.tumblr.com/3951143e0f6fe7fd4215bb9530dad6ad/a0cc08cef6ca29d1-b1/s1280x1920/cc995ccd8e53357edfb5c92274d5a5fe9ddc4fac.pnj)
+
+[twitter](https://x.com/ruuminants) || [atabook](https://ruminant.atabook.org/) || [tumblr](https://ruuminant.tumblr.com/?source=share)
 
 I block/hide freely — please W2I ![](https://64.media.tumblr.com/551a3f2734f7e8e177c9c62522f1b359/6128dc2ba9b3d469-14/s75x75_c1/e8dcdb5a2bfd492cda7af2de1415d41eed0e41a5.gifv) (I'm normally offtab). ...
 
@@ -7,7 +10,8 @@ I block/hide freely — please W2I ![](https://64.media.tumblr.com/551a3f2734f7e
 
 ![1](https://64.media.tumblr.com/09037572c1fb97a46db6dc8959b24dbd/1b4f9af13258362c-f1/s100x200/774b23466d1dd937f1fcd85b959c8e28b19f26c3.pnj)
 ![2](https://64.media.tumblr.com/d8e0b77250c05a2a062b12e5ce6b5e7d/1b4f9af13258362c-e3/s250x400/0aceab6d949ed011ae566dc009745b38074c7fcc.pnj)
-![1jager](https://64.media.tumblr.com/6436b769c651d318a69697fcb55871b8/a0cc08cef6ca29d1-3e/s250x400/59004f1fde6ecb659b6ec8af2f61ce94b1d6e4bc.gifv)
 ![2jager](https://64.media.tumblr.com/fc2568acb40181c9d0b6846726abcf0c/a0cc08cef6ca29d1-f4/s100x200/3f1bbf895a897538b00736b19d661c8653aa4ccc.gifv)
 ![3jager](https://64.media.tumblr.com/9ec86a28f670e12b388a8741a8fc6895/a0cc08cef6ca29d1-3a/s100x200/9a5468c0da0641cce946d56e3fa788dcfbf2ea26.gifv)
 ![3](https://64.media.tumblr.com/d4fbcc89da32da17d7f423d5f96ca744/1b4f9af13258362c-2f/s100x200/6a238484e7f9b40f369aab4850237ff7c8c2c263.webp)
+
+![divider](https://64.media.tumblr.com/3951143e0f6fe7fd4215bb9530dad6ad/a0cc08cef6ca29d1-b1/s1280x1920/cc995ccd8e53357edfb5c92274d5a5fe9ddc4fac.pnj)

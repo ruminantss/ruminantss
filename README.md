@@ -5,8 +5,9 @@ I block/hide freely — please W2I ![](https://64.media.tumblr.com/551a3f2734f7e
 
 ![](https://64.media.tumblr.com/eaecf03685bd97e18dca596c27686a44/45b70a72e20d3d24-51/s75x75_c1/737d923039260e000d95f9b48f6a8e7775daf2f9.gifv) I'm usually on safe below spawn, feel free to say hi or just sit next to me! Idm people copying my ponies/taking inspo or colours, it's completely okay & you don't need to ask beforehand. ![](https://i.postimg.cc/Bb38L70t/4889-DC46-E54-C-44-B2-B86-F-E813-F86-F67-E7.gif)
 
-![1](https://64.media.tumblr.com/d8e0b77250c05a2a062b12e5ce6b5e7d/1b4f9af13258362c-e3/s250x400/0aceab6d949ed011ae566dc009745b38074c7fcc.pnj)
+![1](https://64.media.tumblr.com/09037572c1fb97a46db6dc8959b24dbd/1b4f9af13258362c-f1/s100x200/774b23466d1dd937f1fcd85b959c8e28b19f26c3.pnj)
+![2](https://64.media.tumblr.com/d8e0b77250c05a2a062b12e5ce6b5e7d/1b4f9af13258362c-e3/s250x400/0aceab6d949ed011ae566dc009745b38074c7fcc.pnj)
 ![1jager](https://64.media.tumblr.com/6436b769c651d318a69697fcb55871b8/a0cc08cef6ca29d1-3e/s250x400/59004f1fde6ecb659b6ec8af2f61ce94b1d6e4bc.gifv)
 ![2jager](https://64.media.tumblr.com/fc2568acb40181c9d0b6846726abcf0c/a0cc08cef6ca29d1-f4/s100x200/3f1bbf895a897538b00736b19d661c8653aa4ccc.gifv)
 ![3jager](https://64.media.tumblr.com/9ec86a28f670e12b388a8741a8fc6895/a0cc08cef6ca29d1-3a/s100x200/9a5468c0da0641cce946d56e3fa788dcfbf2ea26.gifv)
-![2](https://64.media.tumblr.com/d4fbcc89da32da17d7f423d5f96ca744/1b4f9af13258362c-2f/s100x200/6a238484e7f9b40f369aab4850237ff7c8c2c263.webp)
+![3](https://64.media.tumblr.com/d4fbcc89da32da17d7f423d5f96ca744/1b4f9af13258362c-2f/s100x200/6a238484e7f9b40f369aab4850237ff7c8c2c263.webp)
